@@ -10,3 +10,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Mohammad Febrian Alifanma, [Linkedin](https://www.linkedin.com/in/mohammad-febrian-alifanma/)
